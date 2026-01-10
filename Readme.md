@@ -1,0 +1,1 @@
+# [CV latest version](./CV/Oleksandr_Tymoshenko_CV_v2026.10.01.pdf)
